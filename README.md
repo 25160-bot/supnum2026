@@ -1,2 +1,2 @@
-# supnum2026
+# supnum2026💚
 it's our university
